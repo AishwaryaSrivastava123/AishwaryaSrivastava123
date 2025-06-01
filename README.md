@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology, Coding, Automotive Software Development and continuos improvement.
 - 🌱 I’m currently learning Data Structure & Algorithm and brushing up software developemnt skills!
 - 💞️ I’m looking to collaborate on projects encompassing latest cutting edge technologies.
-- 📫 How to reach me - mail me at aishwaryasri273@gmail.com
+- 📫 How to reach me - mail me at aishwarya.srivastava273@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Passionate and self-driven for things that excites me
 
